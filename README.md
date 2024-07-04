@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **Adityakumar29275@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1SW-9A3-MqFInSpgo8KJ4QAbo3U_z5NxE/view?usp=sharing](https://drive.google.com/file/d/1SW-9A3-MqFInSpgo8KJ4QAbo3U_z5NxE/view?usp=sharing)
+- 📄 Know about my experiences [ https://drive.google.com/file/d/1k3Z6ZYI2H-UkcWvCdm7D_5mon3upZscq/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
